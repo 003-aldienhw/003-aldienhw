@@ -14,7 +14,7 @@
 
 ###
 
-<p align="center">My name is Aldien H.W. I like nature as you can see. And I always like to photograph something. I'd like to explore and learning new things. I'm interested about Philosophy too. I like to know and discover what life is and what it means.</p>
+<p align="center">My name is Aldien. I love nature, and I'm into photography too. I'd like to explore and learn new things. I'm interested in philosophy as well. I want to know and discover what life is and what it means. As a matter of fact, I love to learn everything about this universe that still holds a lot of mysteries.</p>
 
 ###
 
